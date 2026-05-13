@@ -1,7 +1,7 @@
 <img width="475" height="525" alt="image_2026-05-11_204309718-removebg-preview" src="https://github.com/user-attachments/assets/7247f3d6-150d-47e2-926b-9ef2d4c132c1" />
 <p align="center">
 If I'm not on safe 1 or main map, a little might be fronting or 
-I'm busy as a bee.
+I'm busy as a bee. Busy status means a little is fronting.
 </p>
 
 <p align="right">
