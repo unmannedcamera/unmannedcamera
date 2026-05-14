@@ -39,6 +39,20 @@ I can be hard to interact with and very sensitive at times, if you think I'm bei
   ⛔ status means a little is fronting - Do not int unless we're friends
 
   🌙 means I'm offtab or afk - Whisp2Int
+
+</div>
+
+<div>
+  
+![]()
+
+![]()
+
+</div>
+
+div align="center">
+<img align="center" width="500" height="40" alt="tumblr_71be08988737cf379929537f9a112c77_00ce0234_500" src="https://github.com/user-attachments/assets/573983a9-156d-4bab-a07b-c553a6e544c2" /> </div>
+
 </div>
 
 <div>
