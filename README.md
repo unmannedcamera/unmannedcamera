@@ -8,6 +8,9 @@ I'm busy as a bee. DNI TRASH/Basic DNI. DNI Proship/Darkship/IRDC what you call 
   🌙 means I'm offtab or afk - Whisp2Int
 </p>
 
+<p align="center">
+  I'm 18. I'm okay with talking to anyone under 18, I just will not be friending you.
+</p>
 <p align="right">
   <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/70b3e9da-6f4a-401f-8171-b21daed9feed" />
 </p>
