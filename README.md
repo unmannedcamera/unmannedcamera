@@ -5,10 +5,17 @@ I'm busy as a bee.
 
 DNI TRASH/Basic DNI. DNI Proship/Darkship/IRDC what you call yourselves + Paraphilia + Anti-Contact/Pro-Contact Paraphilia. DNI Mysogynistic/Misandry.
 
-DNI if you hate children to a point where you are actively aggresive towards them, I think this is a very weird thing to joke about, I do not find it funny.
+DNI if you hate children to a point where you are actively aggresive towards them, I think this is a very weird thing to joke about, I do not find it funny. I do not like nsfw or gore of any children, real or fictional, you will immediately be blocked.
 
 DNI jokes about casuing any form of harm to children, fictional or otherwise. DNI nasty-freak-weirdo behavior in general. Also you are not "Anti-Contact" if you play on PonyTown *Safe* servers, those are 18- servers, not 18+.
+
+I can be hard to interact with and very sensitive at times, if you think I'm being sensitive, I was probably upset before talking to you, so it's likely not your fault.
 </p>
+
+<p align="center">
+<div> <img align="center" width="500" height="40" alt="tumblr_71be08988737cf379929537f9a112c77_00ce0234_500" src="https://github.com/user-attachments/assets/573983a9-156d-4bab-a07b-c553a6e544c2" /> </div>
+</p>
+
 
   <p align="right">
   ⛔ status means a little is fronting - Do not int
