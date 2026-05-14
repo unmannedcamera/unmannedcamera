@@ -21,7 +21,10 @@ I can be hard to interact with and very sensitive at times, if you think I'm bei
   🌙 means I'm offtab or afk - Whisp2Int
 </div>
 
-<div> ![]() </div>
+<div>
+![]()
+![]()
+</div>
 
 <div align="right">
   <img align="right" width="250" height="250" alt="credit: clipitcutout - tumblr" src="https://github.com/user-attachments/assets/70b3e9da-6f4a-401f-8171-b21daed9feed"/>
