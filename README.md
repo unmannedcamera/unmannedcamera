@@ -1,15 +1,15 @@
-<img width="475" height="525" alt="image_2026-05-11_204309718-removebg-preview" src="https://github.com/user-attachments/assets/7247f3d6-150d-47e2-926b-9ef2d4c132c1" />
+  <img width="475" height="525" alt="image_2026-05-11_204309718-removebg-preview" src="https://github.com/user-attachments/assets/7247f3d6-150d-47e2-926b-9ef2d4c132c1" />
 <p align="center">
 If I'm not on safe 1 or main map, a little might be fronting or 
 I'm busy as a bee.
-  
+<p align="center">
   ⛔ status means a little is fronting - Do not int
-
+<p align="center">
   🌙 means I'm offtab or afk - Whisp2Int
 </p>
 
 <p align="right">
-<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/70b3e9da-6f4a-401f-8171-b21daed9feed" />
+  <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/70b3e9da-6f4a-401f-8171-b21daed9feed" />
 </p>
 
 <p align="center">
