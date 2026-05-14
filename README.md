@@ -1,4 +1,4 @@
- <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/unmannedcamera?color=ffd948&style=plastic&abbreviated=false&label=PicturesTaken!"/>
+ <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/unmannedcamera?color=ffd948&style=plastic&abbreviated=false&label=Pictures!"/>
  
 <div align="left">
   <img align="left" width="475" height="525" alt="credit: insiderzx - tumblr" src="https://github.com/user-attachments/assets/7247f3d6-150d-47e2-926b-9ef2d4c132c1"/>
