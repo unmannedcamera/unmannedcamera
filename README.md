@@ -12,6 +12,16 @@ DNI jokes about casuing any form of harm to children, fictional or otherwise. DN
 I can be hard to interact with and very sensitive at times, if you think I'm being sensitive, I was probably upset before talking to you, so it's likely not your fault.
 </p>
 
+</div>
+
+<div>
+  
+![]()
+
+![]()
+
+</div>
+
 <div align="center">
 <img align="center" width="500" height="40" alt="tumblr_71be08988737cf379929537f9a112c77_00ce0234_500" src="https://github.com/user-attachments/assets/573983a9-156d-4bab-a07b-c553a6e544c2" /> </div>
 
