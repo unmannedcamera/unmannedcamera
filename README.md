@@ -29,7 +29,8 @@ I can be hard to interact with and very sensitive at times, if you think I'm bei
 </div>
 
 
-<p align="center">
+<div align="center">
   
 [credit](https://www.tumblr.com/insiderzx/780056810060201984/panasonic-toughbook-cf-41-1995) [credit](https://www.tumblr.com/clipitcutout/774692474820214784/some-ms-paint-95-pngs-i-made-using-canva-do-you)
-</p>
+
+</div>
