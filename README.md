@@ -2,7 +2,9 @@
 <p align="center">
 If I'm not on safe 1 or main map, a little might be fronting or 
 I'm busy as a bee.
+  
 ⛔ status means a little is fronting - Do not int
+
   🌙 means I'm offtab or afk - Whisp2Int
 </p>
 
