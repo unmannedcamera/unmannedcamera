@@ -11,9 +11,12 @@
 
  ; can be hard to ;nteract w;th and very sens;t;ve at times, ;f you th;nk ;'m being (too) sens;t;ve, ; was probably upset before talk;ng to you, so ;t's l;kely not your fault, st;ll do ask me to be sure.
 
- sh;ps ; l;ke ☆ squ;dbob, w;llry, clenry, jessarl;e, charla, ch;ll;e and carlm;ke. ;gnore that most of them are fnaf.
+ sh;ps ; l;ke ☆
+ SPSQP: squ;dbob
+ FNAF: w;llry, clenry, jessarl;e, charla, ch;ll;e and carlm;ke.
+ MLP: fluttercord, ra;nbow;ty, tw;jack, p;nksandwich, 
 
- just because ; l;ke a sh;p doesn't mean ;'ll start talk;ng about ;t, ; pay alot of attent;on to my fr;ends op;n;ons on th;ngs ; enjoy.
+ just because ; l;ke a sh;p doesn't mean ;'ll start talk;ng about ;t, ; pay alot of attent;on to my fr;ends op;n;ons on th;ngs ; enjoy. ; also l;ke my current typ;ng qu;rk (I -> ;) ;f you have trouble understand;ng me, ask for translat;on, harrassment or abus;ve language w;ll be met w;th stubborness. some of us m;ght have a (s -> z : ex. The catz all zat on the mat.") typ;ng qu;rk. ; (the host/M;chael) have the (I -> ;) tq.
 </p>
 
 </div>
