@@ -12,7 +12,7 @@
  ; can be hard to ;nteract w;th and very sens;t;ve at times, ;f you th;nk ;'m being (too) sens;t;ve, ; was probably upset before talk;ng to you, so ;t's l;kely not your fault, st;ll do ask me to be sure.
 
  sh;ps ; l;ke ☆
- SPSQP: squ;dbob
+ SBSQP: squ;dbob
  FNAF: w;llry, clenry, jessarl;e, charla, ch;ll;e and carlm;ke.
  MLP: fluttercord, ra;nbow;ty, tw;jack, p;nksandwich, 
 
