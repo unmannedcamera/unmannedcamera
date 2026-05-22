@@ -10,6 +10,10 @@
  ;'m 18. ;'m okay with talk;ng to anyone under 18, ; just w;ll not be fr;end;ng you, but ; also do not want to hear about adult top;cs from you nor do ; want you fl;rting with me, jok;ng or otherw;se. ; am an adult, ;f you start talk;ng about adult top;cs or fl;rt;ng.
 
  ; can be hard to ;nteract w;th and very sens;t;ve at times, ;f you th;nk ;'m being (too) sens;t;ve, ; was probably upset before talk;ng to you, so ;t's l;kely not your fault, st;ll do ask me to be sure.
+
+ sh;ps ; l;ke ☆ squ;dbob, w;llry, clenry, jessarl;e, charla, ch;ll;e and carlm;ke. ;gnore that most of them are fnaf.
+
+ just because ; l;ke a sh;p doesn't mean ;'ll start talk;ng about ;t, ; pay alot of attent;on to my fr;ends op;n;ons on th;ngs ; enjoy.
 </p>
 
 </div>
