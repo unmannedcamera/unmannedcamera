@@ -4,16 +4,16 @@
  
 <div align="left">
   <img align="left" width="475" height="525" alt="credit: insiderzx - tumblr" src="https://github.com/user-attachments/assets/7247f3d6-150d-47e2-926b-9ef2d4c132c1"/>
-If I'm not on safe 1 or main map, a little might be fronting or 
-I'm busy as a bee.
+;f ;'m not on safe 1 or main map, a l;ttle might be front;ng or 
+;'m busy as a bee.
 
-DNI TRASH/Basic DNI. DNI Proship/Darkship/IRDC what you call yourselves + Paraphilia + Anti-Contact/Pro-Contact Paraphilia. DNI Mysogynistic/Misandry.
+DN; TRASH/Bas;c DN;. DN; Prosh;p/Darksh;p/;RDC what you call yourselves + Paraph;l;a + Ant;-Contact/Pro-Contact Paraph;l;a. DN; M;sogyny/M;sandry.
 
-DNI if you hate children to a point where you are actively aggresive towards them, I think this is a very weird thing to joke about, I do not find it funny. I do not like nsfw or gore of any children, real or fictional, you will immediately be blocked.
+DN; ;f you hate ch;ldren to a po;nt where you are act;vely aggres;ve towards them, ; think th;s ;s a very we;rd thing to joke about, ; do not find ;t funny. ; do not l;ke nsfw or gore of any ch;ldren, real or f;ct;onal, you w;ll ;mmed;ately be blocked.
 
-DNI jokes about casuing any form of harm to children, fictional or otherwise. DNI nasty-freak-weirdo behavior in general. Also you are not "Anti-Contact" if you play on PonyTown *Safe* servers, those are 18- servers, not 18+.
+DN; jokes about casuing any form of harm to ch;ldren, f;ct;onal or otherw;se. DN; nasty-freak-we;rdo behavior ;n general. Also you are not "Ant;-Contact" ;f you play on PonyTown *Safe* servers, those are 18- inclus;ve servers, not 18+ exclus;ve. ; also dgaf if you're "ant;-contact" get offl;ne and get help.
 
-I can be hard to interact with and very sensitive at times, if you think I'm being sensitive, I was probably upset before talking to you, so it's likely not your fault.
+; can be hard to ;nteract w;th and very sens;t;ve at times, ;f you th;nk ;'m being (too) sens;t;ve, ; was probably upset before talk;ng to you, so ;t's l;kely not your fault, st;ll do ask me to be sure.
 </p>
 
 </div>
@@ -40,9 +40,9 @@ I can be hard to interact with and very sensitive at times, if you think I'm bei
 </div>
 
 <div align="center">
-  ⛔ status means a little is fronting - Do not int unless we're friends
+  ⛔ status means a l;ttle ;s front;ng - Do not ;nt unless we're fr;ends
 
-  🌙 means I'm offtab or afk - Whisp2Int
+  🌙 means ;'m offtab or afk - Wh;sp2;nt
 
 </div>
 
@@ -70,7 +70,7 @@ I can be hard to interact with and very sensitive at times, if you think I'm bei
 <div align="right">
   <img align="right" width="250" height="250" alt="credit: clipitcutout - tumblr" src="https://github.com/user-attachments/assets/70b3e9da-6f4a-401f-8171-b21daed9feed"/>
   <p align="left">
-  I'm 18. I'm okay with talking to anyone under 18, I just will not be friending you, but I do not want to hear about adult topics from you nor do I want you flirting with me, I am an adult.
+  ;'m 18. ;'m okay with talk;ng to anyone under 18, ; just w;ll not be fr;end;ng you, but ; also do not want to hear about adult top;cs from you nor do ; want you fl;rting with me, jok;ng or otherw;se. ; am an adult, ;f you start talk;ng about adult top;cs or fl;rt;ng.
   </p>
 </div>
 
