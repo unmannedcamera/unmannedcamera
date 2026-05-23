@@ -68,7 +68,7 @@
 <div align="right">
   <img align="right" width="250" height="250" alt="credit: clipitcutout - tumblr" src="https://github.com/user-attachments/assets/70b3e9da-6f4a-401f-8171-b21daed9feed"/>
   <p align="left">
-  DN; TRASH/Bas;c DN;. DN; Prosh;p/Darksh;p/;RDC what you call yourselves + Paraph;l;a + Ant;-Contact/Pro-Contact Paraph;l;a. DN; M;sogyny/M;sandry.
+  DN; TRASH/Bas;c DN;. DN; Prosh;p/Darksh;p/;RDC what you call yourselves + Paraph;l;a + Ant;-Contact/Pro-Contact Paraph;l;a. DN; M;sogyny/M;sandry. DN; Pro-Ana/Pro-M;a.
 
  DN; ;f you hate ch;ldren to a po;nt where you are act;vely aggres;ve towards them, ; think th;s ;s a very we;rd thing to joke about, ; do not find ;t funny. ; do not l;ke nsfw or gore of any ch;ldren, real or f;ct;onal, you w;ll ;mmed;ately be blocked.
 
