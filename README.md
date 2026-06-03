@@ -70,9 +70,9 @@
   <p align="left">
   DN; TRASH/Bas;c DN;. DN; Proship/Darkship/IRDC what you call yourselves + Paraphilia + Anti-Contact/Pro-Contact Paraphilia. DN; Misogyny/Misandry. DN; Pro-Ana/Pro-Mia.
 
- DN; ;f you hate ch;ldren to a po;nt where you are act;vely aggres;ve towards them, ; think th;s ;s a very we;rd thing to joke about, ; do not find ;t funny. ; do not l;ke nsfw or gore of any ch;ldren, real or f;ct;onal, you w;ll ;mmed;ately be blocked.
+ DN; ;f you hate ch;ldren to a po;nt where you are act;vely aggres;ve towards them, ; think th;s ;s a very we;rd thing to joke about, I do not find ;t funny. I do not l;ke nsfw or gore of any ch;ldren, real or f;ct;onal, you w;ll immed;ately be blocked.
 
- DN; jokes about casuing any form of harm to ch;ldren, f;ct;onal or otherw;se. DN; nasty-freak-we;rdo behavior ;n general. Also you are not "Ant;-Contact" ;f you play on PonyTown *Safe* servers, those are 18- inclus;ve servers, not 18+ exclus;ve. ; also dgaf if you're "ant;-contact" get offl;ne and get help.
+ DN; jokes about casuing any form of harm to ch;ldren, f;ct;onal or otherw;se. DN; nasty-freak-we;rdo behavior ;n general. Also you are not "Ant;-Contact" ;f you play on PonyTown *Safe* servers, those are 18- inclus;ve servers, not 18+ exclus;ve. I also dgaf if you're "ant;-contact" get offl;ne and get help.
   </p>
 </div>
 
